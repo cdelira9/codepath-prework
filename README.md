@@ -4,7 +4,7 @@
 
 Submitted by: Cynthia Delira
 
-Time spent: **#** hours spent in total
+Time spent: **5** hours spent in total
 
 Link to project: (https://glitch.com/~delira-prework)
 
